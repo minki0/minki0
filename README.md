@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @minki0
+- 👀 I’m interested in Music, drawing, skating, parkour. and pretty much everything thats weird or unique in some way 
+- 🌱 I’m currently learning how to make music and do psrkour
+- 😄 Pronouns: call me whatever youd like im fine with everythinga nd anything
+- ⚡ Fun fact: i know a bunch of different martial art styles and have made my own
